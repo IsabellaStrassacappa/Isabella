@@ -1,3 +1,3 @@
 ### Um pouco sobre mim!
 
-![](https://tenor.com/pt-BR/view/ghvip-gh-tvresidence-madre-mia-el-tiempo-del-descuento-gif-16035306)
+![](https://media.tenor.com/h_wlSVuiM2cAAAAM/ghvip-gh.gif)
